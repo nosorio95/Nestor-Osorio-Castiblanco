@@ -1,2 +1,0 @@
-# Nestor-Osorio-Castiblanco
-
